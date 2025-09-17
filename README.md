@@ -1,1 +1,0 @@
-# summit2013-creativecommons
